@@ -15,3 +15,10 @@ https://drive.google.com/file/d/1vSp5R85gL-lPDCkfSM6VGu9PUt5Brf4J/view?usp=shari
   4. The Implementation - Recruitment and Selection Model, Job Analysis and Person Specification, Recruiting, Sourcingm Screening, Selecting, Partnerships, Training Programs, KPIs<br>
   5. Management Roles - Context and Duties, and 360 Degree Apraisals
 </p>
+
+<h1> 📓 COURSE RELATED NOTES  </h1>
+
+<p>  Work-related musculoskeletal disorders (WMSDs) Report: <br>
+  https://drive.google.com/file/d/1g9SZJO6L00MPHomaA0lnLDwA7oz7Sk2Z/view?usp=sharing <br>
+
+  <h1> Study Notes: Coming Soon! 🌸STAY TUNED🌸 </h1>
